@@ -1,1 +1,0 @@
-# TRUTHEAR HEXA
